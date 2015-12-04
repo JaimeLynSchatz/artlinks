@@ -1,4 +1,11 @@
 # artlinks
+Five Kinds of Pencil Technique
+Stippling
+Hatching
+Cross-Hatching
+Back & Forth Stroke
+Scrumbling
+
 From The Met Online http://www.metmuseum.org/collection/the-collection-online 
 
 http://images.metmuseum.org/CRDImages/ep/original/DT1565.jpg
