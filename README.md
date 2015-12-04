@@ -1,5 +1,5 @@
 # artlinks
-![alt text](img: https://raw.githubusercontent.com/JaimeLynSchatz/artlinks/master/images/colored-pencil-techniques.jpg) 
+![alt text](https://raw.githubusercontent.com/JaimeLynSchatz/artlinks/master/images/colored-pencil-techniques.jpg) 
 Five Kinds of Pencil Technique
 Stippling
 Hatching
