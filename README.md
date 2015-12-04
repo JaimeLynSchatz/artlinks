@@ -17,12 +17,6 @@ Artist: Edgar Degas (French, Paris 1834–1917 Paris)
 Date: after 1878
 Medium: Pastel on buff-colored wove paper
 
-http://images.metmuseum.org/CRDImages/ep/original/DT253888.jpg
-Two Dancers
-Artist: Edgar Degas (French, Paris 1834–1917 Paris)
-Date: ca. 1879
-Medium: Charcoal and white chalk on green commercially coated wove paper
-
 http://images.metmuseum.org/CRDImages/ep/original/DT1006.jpg
 The Rehearsal Onstage
 Artist: Edgar Degas (French, Paris 1834–1917 Paris)
