@@ -27,3 +27,6 @@ Medium: Pastel on buff-colored wove paper
 Artist: Edgar Degas (French, Paris 1834–1917 Paris)
 Date: ca. 1874
 Medium: Pastel over brush-and-ink drawing on thin cream-colored wove paper, laid down on bristol board and mounted on canvas
+
+Tchaikovsky's Nutcracker Suite: https://www.youtube.com/watch?v=w1nzCDUNf-0
+1892
